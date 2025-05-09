@@ -18,7 +18,7 @@
 - College or tech community projects 👩‍🎓
 
 ## 📫 How to reach me ...
-- 📧 thammiya.dev@gmail.com
+- 📧 thamyasuresh11@gmail.com
 - 💼 [LinkedIn #1](https://www.linkedin.com/in/thamya-suresh-598b68303)
 - 💼 [LinkedIn #2](https://www.linkedin.com/in/thamya-suresh-247a2a351/)
 - 📸 [Instagram](https://www.instagram.com/miyas.11/)
